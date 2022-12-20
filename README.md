@@ -32,6 +32,7 @@
 
 更多精彩福利\n
 
-![image](https://user-images.githubusercontent.com/35225502/208577855-62ae1233-b194-4dc8-8551-3d494bce8c34.png)
+![image](https://user-images.githubusercontent.com/35225502/208579256-f982608d-ddbc-4a35-b021-d8b49f4a4214.png)
+
 
 
